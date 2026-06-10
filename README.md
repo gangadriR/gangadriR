@@ -1,6 +1,6 @@
 https://www.linkedin.com/in/gangadri-g-a28775354# 👋 Hi there, I'm Golla Gangadri!
 
-🎓 **BTech 3rd Year Student**  
+🎓 **BTech 4th Year Student**  
 **Specialization:** Artificial Intelligence & Machine Learning  
 **College:** TKR College of Engineering & Technology
 
